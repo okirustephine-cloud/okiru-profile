@@ -1,1 +1,1 @@
-This site belongs to John Stephine Okiru. A public Health graduate who is passionate about technology and computer. He has done a certification in Data and AI. He is also good at web development which he learnt on his own making him a versatile, passionate, and a person who is willing to learn. If you are able to see this site just have in mind that JOhn Stephine Okiru Otieno built it from scratch which shows his work ethics.
+
